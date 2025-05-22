@@ -9,6 +9,10 @@ The awards I have earned.
 
 **Cambridge AICE Diploma**
 
+**FIU Gold and Blue Scholarship**
+
+**NSU Deans Scholarship**
+
 ---
 
 ## 📚 **Academic Excellence**  
