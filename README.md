@@ -3,6 +3,7 @@ The awards I have earned.
 # 🏆 Academic Achievements  
 **Straight A's & A/B Honor Roll Recipient**  
 **CTE Program for 3 years - 6+ industry certifications**
+
 **Bright Futures Scholarship (Florida Academic Scholars) 100% college tuition**
 
 
