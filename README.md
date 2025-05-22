@@ -7,6 +7,7 @@ The awards I have earned.
 
 **Bright Futures Scholarship (Florida Academic Scholars) 100% college tuition**
 
+**Cambridge AICE Diploma**
 
 ---
 
